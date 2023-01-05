@@ -1,2 +1,1 @@
 # KUC1N9H174M
-Hai, saya R4PA.
